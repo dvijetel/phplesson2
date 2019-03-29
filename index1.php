@@ -1,0 +1,1 @@
+<blockquote>кОплю на FERRARRI</blockquote>
